@@ -8,4 +8,4 @@
 🤔 I’m looking for help with everything<br>
 📫 How to reach me: p.anamsousa@gmail.com<br>
 😄 Pronouns: she/her<br>
-🧾 Curriculum: <a href="linkedin.com/in/panamsousa">Linkedin</a> 
+🧾 Curriculum: <a href="https://www.linkedin.com/in/panamsousa/">Linkedin</a> 
